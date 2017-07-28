@@ -1,5 +1,5 @@
 # GitHubPractice
-memes SO dank
+queso SO dank
 watermelon
 cantaloupe
 is that how you spell that ^^
